@@ -1,2 +1,1 @@
 # skupsche.github.io
-Mimo
